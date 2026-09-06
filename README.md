@@ -1,2 +1,2 @@
-# professional-iptv
-Professional IPTV player with worldwide channels, streaming links, and multi-quality support
+# professional-iptvdnjddjssjjdjdsjskksjsj
+Professional IPTVnenenenwjejsjsjejsjjsjsjsjsjjssjsjsjjsjjsjsjsjjdjdjsnsnnsznnznsjsjsjsjjssjsjsjjdjdsjdndjdjsnsnsjsjskskskskskwwksksksksksksjskssksksksksksjsjsjsbdhheh iwskksjrriiejsjdjdieiwkdjdiwisjdieijdhsnsamqmwlzlockdjjeqkwokddjkwrbwwtbgsngsngsngndgNdgmdNdgndgSgbsfbcz zc xv x xbCbabsfntshadhrsnsfbDnzcndnfsbFmdgnczbznzv c,fbgzngdnfsbsBdgnstbdakejshqrjarfsvafznxbx'''*!$&!$&+¥✓©✓®zcnc,ndhmdgktshVbbZb,nzmdnDbx&*;_€: ,nznfzbcns *!&!&"!&$!$&+#5+5#+5$+4#+#4!4#+4#+4#!_#;_✓^[%^ dBrabandabNznsbzbwejplayer with worldwide channedndndndnsnjsjsjssnnssjsjsls, streaming links, and multi-quality support
